@@ -1,0 +1,1 @@
+# Jurnal04-ISD-607062330049_Muhammad-Daffa-Ramadhan
